@@ -9,7 +9,7 @@ With industry experience spanning IT Services, Consulting, and Analytics, I have
 📫 Let's Connect
 If you're looking for a Data Analyst with a proven record of transforming data into insights and driving tangible business impact — I'd love to connect.
 
-✉️ Email: gs268197@gmail.com
+✉️ Email: ad268197@gmail.com
 
 📱 Mobile: +91 9876543532
 
